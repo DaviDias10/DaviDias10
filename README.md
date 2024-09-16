@@ -2,7 +2,7 @@
 - 👀 I’m interested in ensinar
 - 🌱 I’m currently learning programação 
 - 💞️ I’m looking to collaborate on com alunos
-- 📫 How to reach me davi.izidorodias@gmail.com
+- 📫 How to reach me daviizidoro@prof.educacao.sp.gov.br
 - 😄 Pronouns: Ile/ Elu
 - ⚡ Fun fact: Arte educador
 
